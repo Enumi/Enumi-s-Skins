@@ -7,5 +7,5 @@ These skins are not mine, I just use them.
 # [-        # WhiteCat (1.0) 『CK』 #-](https://drive.google.com/file/d/1A9Ktx7MY-UP5iOGTTHsyQP622zDOKqfe/view?usp=sharing)
 ![Image](https://i.imgur.com/YoJv4mQ.jpg)
 
-# [your word/name](url link)
-![](url)
+# [Aristia(Edit)](https://drive.google.com/file/d/1w0-23LSUUXdpmapsTN1lbBVJFW69iRjt/view)
+![Image](https://skins.osuck.net/uploads/posts/2019-02/1549355517_3.jpg)
