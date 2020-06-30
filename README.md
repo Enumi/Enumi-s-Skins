@@ -9,3 +9,6 @@ These skins are not mine, I just use them.
 
 # [Aristia(Edit)](https://drive.google.com/file/d/1w0-23LSUUXdpmapsTN1lbBVJFW69iRjt/view)
 ![Image](https://skins.osuck.net/uploads/posts/2019-02/1549355517_3.jpg)
+
+# [Aristia(Edit)+trail](https://drive.google.com/file/d/15TqaeQqvn0Rse1WL0cBl7LqqVtP8O4hJ/view)
+![Image](https://skins.osuck.net/uploads/posts/2019-07/1561975230_screenshot5519.jpg)
