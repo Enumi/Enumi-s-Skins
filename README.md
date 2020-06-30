@@ -12,3 +12,7 @@ These skins are not mine, I just use them.
 
 # [Aristia(Edit)+trail](https://drive.google.com/file/d/15TqaeQqvn0Rse1WL0cBl7LqqVtP8O4hJ/view)
 ![Image](https://skins.osuck.net/uploads/posts/2019-07/1561975230_screenshot5519.jpg)
+
+# [idke 1.2 without sliderendcircle](https://drive.google.com/file/d/1VBoJ2-Bz8qPD3fyqB7hFbmOpeI20HUUp/view?usp=sharing)
+![Image](https://i.imgur.com/KDLGPrC.jpg)
+
