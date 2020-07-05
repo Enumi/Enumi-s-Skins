@@ -16,3 +16,5 @@ These skins are not mine, I just use them.
 # [idke 1.2 without sliderendcircle](https://drive.google.com/file/d/1VBoJ2-Bz8qPD3fyqB7hFbmOpeI20HUUp/view?usp=sharing)
 ![Image](https://i.imgur.com/KDLGPrC.jpg)
 
+# [vv_idke_trail](https://drive.google.com/file/d/12xHpKcdN5HNnAQnjL8JN507ZyQEEFCn-/view)
+![Image](https://skins.osuck.net/uploads/posts/2019-07/1561977645_screenshot5556.jpg)
